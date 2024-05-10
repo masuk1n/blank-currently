@@ -1,4 +1,4 @@
-...# blank-currently
+l...# blank-currently
 ideias that will come together soon
 its coming
 
